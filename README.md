@@ -42,4 +42,12 @@
 
 <p>EA SPORTS FC è più di un semplice gioco: è una sfida continua, una competizione senza fine. Ma senza le giuste risorse, restare al passo diventa impossibile. Grazie al nostro generatore di risorse illimitate per EA SPORTS FC, puoi avere crediti e punti infiniti gratis senza rischiare nulla. Prova ora questi trucchi per EA SPORTS FC e domina il campo come mai prima d'ora!</p>
 
-## [SCARICA I TRUCCHI EA SPORTS FC](https://bit.ly/44IY6fb)
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/pasco24aita">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
